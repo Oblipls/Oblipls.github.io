@@ -1,2 +1,7 @@
 # odin-recipez
-yuup
+yuup.
+
+Revisiting T.O.P. Love y'all. 
+
+<3 
+
